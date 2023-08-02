@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kitchoop
+- 👋 Hi, I’m @kitchoop alias Kishore
 - 👀 I’m interested in Human Resource Management
 - 🌱 I’m currently learning Business Development
 - 💞️ I’m looking to collaborate on Marketing
